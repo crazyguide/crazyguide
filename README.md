@@ -26,3 +26,9 @@
 </div>
 
 <p align="center"> <a href="https://crazyguide.straw.page/">ᰋ strawpage</a> ${\textsf{\color{#9FA1A0}  ‹𝟹 ꒱ ᰍ }}$ <a href="https://rentry.co/alelelert">ᰋ basic dni</a> ${\textsf{\color{#9FA1A0}  ‹𝟹 ꒱ ᰍ }}$ <a href="https://crazyguide.atabook.org/">ᰋ atabook</a> ${\textsf{\color{#9FA1A0}  ‹𝟹 ꒱ ᰍ }}$
+
+<img width="100%" height="1536" alt="image" src="https://github.com/user-attachments/assets/d35f7a7c-67c2-4491-a2f1-ca2159193431" />
+
+<p align="center"> ${\textsf{\color{#F4621E} if we follow someone problematic, let us know! }}$
+
+<img width="100%" height="245" alt="image" src="https://github.com/user-attachments/assets/3c70e586-264a-4ea1-8f4c-c92426870109" />
